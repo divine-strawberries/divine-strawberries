@@ -23,7 +23,7 @@ I often simp about everything i see in social media i know ts is random but meh.
 As i said earlier my mood changes very quickly sometimes i feel kind for an hour and will randomly be sulking at the corner or having an tantrum, i cannot control my emotions so sometimes i let things happen freely since i can't control my emotions.
 I do arts’ (Traditional and Digital) I don't really post my arts’ here ‘cause i feel lazy to give a caption to that art (js kidding I'm just shy to post it..)
 
-,
+![Image](https://github.com/user-attachments/assets/582fe876-f149-4065-81a7-1db49f01e124)
 
 my account 1000000 percent/ly/ don‘t support racism (will casually add about making jokes about the twin towers and about Asian shyts.)‚
 homophobic peoples‚
