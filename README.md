@@ -40,6 +40,8 @@ D O G ’s and C A T ’s are epic!!
 I like to doodle everywhere>< (including my room wall)
 I LOVE SHIPS (only the canons one, like purelily(Shadownilly/J,,,okay...) — i lied about this I‘m mostly onlY on the side where i like soo i can me a multishiper but semi?? ion really like Purelily (respect for people who do) i just like what my feelings like ‚ i can't just force myself into loving something i don‘t want — .
 
+![Image](https://github.com/user-attachments/assets/8e2e4dad-d618-4974-a9ae-23835fb66d32)
+
 ˙ . ꒷ ***My fav hyperfixtion /chara***
 
 fandom - (SSMP) : Schpood , Cynika , Elanuelo , fluxion , CallmeCass , saparata , sidefall , Afreakinturkey , and Jophiel !!
