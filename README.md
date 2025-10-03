@@ -56,7 +56,7 @@ thi is **Ries** !! the representative to be my oc as divine-strawberries!! the p
 
 ## this is my main oc!! obvious the name is Mallory! pronounce are she/her !!
 
-
+![Image](https://github.com/user-attachments/assets/2c854afb-b971-4917-b95c-8b39849573eb)
 
 
 (i got lazy soo might edit this when i got motivation.)
