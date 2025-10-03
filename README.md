@@ -1,5 +1,7 @@
 # 🍰  ᶻ 𝗓 𐰁 
 
+![Image](https://github.com/user-attachments/assets/93a9496d-1d6c-41e3-b0b1-5a364746e173)
+
 ###### ***hi , hello welcome to my GitHub , nice too meet you my full name through online is Mallory Sallsisiera Vascheastra, soo that's it i hopw we get a long with each other, and yes I'm a FILIPINO! but i mostly speak English because majority of my friends are all eng. please this introduction is newly built soo might have some unfinished business and typographical errors !!***
 
 ## ┃◌ 𝙄ᑎ𝙏ᖇ𖥔ᗪᑌᑕ𝙏𝙄𝙊ᑎ
@@ -50,11 +52,11 @@ fandom (SU) : Pink diamond , Pearl , sapphires , and rose quartz.
 
 thi is **Ries** !! the representative to be my oc as divine-strawberries!! the pronounce for this oc is he/him !! 
 
-[image]![pony-town-🍓 - Ries - c_h ! _🐈-sit-blinking-padded-toy11-4x.gif](https://github.com/user-attachments/assets/8e285fbe-0ad4-407b-b1cb-c7781cb5b15a)
+
 
 ## this is my main oc!! obvious the name is Mallory! pronounce are she/her !!
 
-[image]![pony-town-💕 - Vascheastra-happy-wink-blinking-padded-4x.gif](https://github.com/user-attachments/assets/83acd64b-6fdd-49f1-a246-eccbc5a6d9ea)
+
 
 
 (i got lazy soo might edit this when i got motivation.)
