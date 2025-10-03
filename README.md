@@ -52,12 +52,12 @@ fandom (SU) : Pink diamond , Pearl , sapphires , and rose quartz.
 
 thi is **Ries** !! the representative to be my oc as divine-strawberries!! the pronounce for this oc is he/him !! 
 
-
+![Image](https://github.com/user-attachments/assets/b70d3c3e-f493-4990-b062-942d024c2ca0)
 
 ## this is my main oc!! obvious the name is Mallory! pronounce are she/her !!
 
 
-
+![Image](https://github.com/user-attachments/assets/a216a81d-f42a-4d5d-8002-33e7761ebc8c)
 
 (i got lazy soo might edit this when i got motivation.)
 
