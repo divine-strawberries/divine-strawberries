@@ -48,6 +48,14 @@ fandom (CHS) : Kazakhstan , Ukraine , Serbia and Spain.
 
 fandom (SU) : Pink diamond , Pearl , sapphires , and rose quartz.
 
+thi is **Ries** !! the representative to be my oc as divine-strawberries!! the pronounce for this oc is he/him !! 
+
+[image]![pony-town-🍓 - Ries - c_h ! _🐈-sit-blinking-padded-toy11-4x.gif](https://github.com/user-attachments/assets/8e285fbe-0ad4-407b-b1cb-c7781cb5b15a)
+
+## this is my main oc!! obvious the name is Mallory! pronounce are she/her !!
+
+[image]![pony-town-💕 - Vascheastra-happy-wink-blinking-padded-4x.gif](https://github.com/user-attachments/assets/83acd64b-6fdd-49f1-a246-eccbc5a6d9ea)
+
 
 (i got lazy soo might edit this when i got motivation.)
 
