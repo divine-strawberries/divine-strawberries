@@ -1,11 +1,11 @@
-# 🍰  ᶻ 𝗓 𐰁 
 
-![Image](https://github.com/user-attachments/assets/93a9496d-1d6c-41e3-b0b1-5a364746e173)
+![Image](https://github.com/user-attachments/assets/7fe8701b-c697-4ad8-946f-69d68ff4601e)
+
 
 ###### ***hi , hello welcome to my GitHub , nice too meet you my full name through online is Mallory Sallsisiera Vascheastra, soo that's it i hopw we get a long with each other, and yes I'm a FILIPINO! but i mostly speak English because majority of my friends are all eng. please this introduction is newly built soo might have some unfinished business and typographical errors !!***
 
 ## ┃◌ 𝙄ᑎ𝙏ᖇ𖥔ᗪᑌᑕ𝙏𝙄𝙊ᑎ
-
+![Image](https://github.com/user-attachments/assets/93a9496d-1d6c-41e3-b0b1-5a364746e173)
 *Good morning/afternoon/evening to you lovely young lady/man welcome to my profile it would be delightful if you react to this post and read my introduction! /j*
 
 ### *꒰ ♡︵ hiii‚ I‘m Mallory‚ but you can call me Mall or oryo. I would like to introduce myself to you!*
