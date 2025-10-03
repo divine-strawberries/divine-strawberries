@@ -10,7 +10,7 @@
 
 ### *꒰ ♡︵ hiii‚ I‘m Mallory‚ but you can call me Mall or oryo. I would like to introduce myself to you!*
 
-<img width="99" height="55" alt="Image" src="https://github.com/user-attachments/assets/f3867843-7171-4fbb-8da7-32b0f791f305" />
+<img width="99" height="55" alt="Image" src="https://github.com/user-attachments/assets/f3867843-7171-4fbb-8da7-32b0f791f305" /> <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/7139f3f9-f273-4a18-92f9-53e79d9a3a23" />
 
 First things first I‘m still a minor ***acting like an adult in soc med.***
  I am highly interactive but sometimes I‘m not due to the change of my moods and personalities over the time.
