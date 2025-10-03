@@ -63,16 +63,7 @@ thi is **Ries** !! the representative to be my oc as divine-strawberries!! the p
 
 (i got lazy soo might edit this when i got motivation.)
 
--
--
--
--
--
--
--
--
-# ⑅ ۫𓈒 ♡
-
+![Image](https://github.com/user-attachments/assets/600ed85e-ad7b-43ad-83dc-2f2dc809058a)
 <!--
 **divine-strawberries/divine-strawberries** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
