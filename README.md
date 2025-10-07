@@ -1,3 +1,7 @@
+ ![Image](https://img.shields.io/badge/divine--crisis-darkred)
+
+
+
 
 ![Image](https://github.com/user-attachments/assets/7fe8701b-c697-4ad8-946f-69d68ff4601e)
 
