@@ -1,7 +1,4 @@
- ![Image](https://img.shields.io/badge/divine--crisis-darkred)
-
-
-
+<img width="4616" height="2817" alt="Image" src="https://github.com/user-attachments/assets/df1a61be-6d6f-4dc0-8ea5-89511972c589" />
 
 <!--
 **divine-strawberries/divine-strawberries** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
