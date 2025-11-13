@@ -2,7 +2,7 @@
 
 <img width="4616" height="2817" alt="Image" src="https://github.com/user-attachments/assets/df1a61be-6d6f-4dc0-8ea5-89511972c589" />
 
-——[atabook](https://mallooryyooooo.atabook.org/)⁠ ◝ [strawpage](https://m4lloeyy.straw.page) ✧ [Instagram](https://www.instagram.com/yangmii_ywy?igsh=MWJqNGJkbnp4bTAzYQ==)  ◜ [tiktok](https://www.tiktok.com/@oreosdomino?_r=1&_t=ZS-91MBvIlTP4Z)
+![Image](https://github.com/user-attachments/assets/701a7d33-5520-4b5e-bf72-6a149571b067) [atabook](https://mallooryyooooo.atabook.org/)⁠ ◝ ✧ [strawpage](https://m4lloeyy.straw.page) ✧ ◜ [tiktok](https://www.tiktok.com/@oreosdomino?_r=1&_t=ZS-91MBvIlTP4Z)
 
 <img width="735" height="114" alt="Image" src="https://github.com/user-attachments/assets/8f192e1f-4aef-4244-9531-eb6d5d15b11f" />
 
