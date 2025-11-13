@@ -2,6 +2,8 @@
 
 <img width="4616" height="2817" alt="Image" src="https://github.com/user-attachments/assets/df1a61be-6d6f-4dc0-8ea5-89511972c589" />
 
+[atabook](https://mallooryyooooo.atabook.org/) ⁠✧ [strawpage](https://m4lloeyy.straw.page)
+
 <img width="735" height="114" alt="Image" src="https://github.com/user-attachments/assets/8f192e1f-4aef-4244-9531-eb6d5d15b11f" />
 
 <!--
